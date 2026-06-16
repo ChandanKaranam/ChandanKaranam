@@ -53,6 +53,6 @@
 
 ## 🤝 Connect With Me
 
-[LinkedIn]((https://www.linkedin.com/in/chandan-karanam/))
+💼 LinkedIn: https://www.linkedin.com/in/chandan-karanam/
 
 📧 chandankaranamm@gmail.com
